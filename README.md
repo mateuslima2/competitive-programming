@@ -49,3 +49,4 @@
 ### Youtube playlists
 
 1. gkcs(https://www.youtube.com/channel/UCRPMAqdtSgd0Ipeef7iFsKw)
+2. Melhor ano da música(https://www.youtube.com/watch?v=4JipHEz53sU&list=PL519BB431DEDB281D)
